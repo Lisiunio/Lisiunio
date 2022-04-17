@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lisiunio
+- 👀 I’m interested in playing video games
+- 🌱 I’m currently learning nothing :)
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me: you don't 
